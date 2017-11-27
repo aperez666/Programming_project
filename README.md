@@ -1,0 +1,2 @@
+# Programming_project
+This is my project trying to show how people run away from their problems. The red circle is the boy and the yellow one is the girl. The the red one the boy is running away from the girl because she’s giving him too much problems and headaches. Is not good to run away from your problems when two people can’t get along with each other it’s better to be alone. People need their space that’s why the boy ran away from the girl. It’s better that way.
